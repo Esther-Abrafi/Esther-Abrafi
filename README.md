@@ -1,4 +1,4 @@
-# Hello there Esther Abrafi here
+# Hello, Esther Abrafi here
 ## About me
 Labor Economist| Accountant| Data Analyst
 
